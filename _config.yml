@@ -27,7 +27,7 @@ collections:
 
 # Build settings
 markdown: kramdown
-theme: spectral_jekyll_theme
+#theme: spectral_jekyll_theme
 gems:
   - jekyll-feed
 exclude:

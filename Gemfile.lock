@@ -75,7 +75,6 @@ GEM
     sass (3.4.23)
     shellany (0.0.1)
     slop (3.6.0)
-    spectral_jekyll_theme (0.2.1)
     thor (0.19.1)
 
 PLATFORMS
@@ -87,7 +86,6 @@ DEPENDENCIES
   jekyll (= 3.3.1)
   jekyll-feed (~> 0.6)
   minima (~> 2.0)
-  spectral_jekyll_theme
 
 RUBY VERSION
    ruby 2.2.3p173
