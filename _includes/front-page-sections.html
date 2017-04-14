@@ -5,7 +5,9 @@
 	<section class="spotlight">
 		<div class="image">{% if section.image %}<img src="{% if site.featured-image-source %}{{ section.image | prepend: site.featured-image-source | absolute_url }}{% else %}{{ "" | absolute_url }}/assets/images/{{ section.image }}{% endif %}" alt="" />{% endif %}</div>
 		<div class="content">
-			<h2>{{ section.title }}</h2>
+			{% if section.page_title %}
+				<h2>{{ section.page_title }}</h2>
+			{% endif %}
 			<p>{{ section.description }}</p>
 			<p>{{ section.content }}</p>
 		</div>
