@@ -23,7 +23,15 @@
 	padding: 3em;
 }
 
-.spotlight, .spotlight:nth-child(1), .spotlight:nth-child(2) {
+.spotlight, .spotlight:nth-child(1) {
+	background-color: rgba(0, 0, 0, 0.6);
+}
+
+.spotlight:nth-child(2) {
+	background-color: rgba(0, 0, 0, 0.4);
+}
+
+.spotlight:nth-child(3) {
 	background-color: rgba(0, 0, 0, 0.6);
 }
 
