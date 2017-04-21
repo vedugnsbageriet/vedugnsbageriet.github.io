@@ -1,7 +1,7 @@
 ---
 image: bread.jpg
 ---
-<blockquote>"Vi återgår till det ursprungliga hantverket och använder ekologiska råvaror utan onödiga tillsatser – det ger surdegsbrödet fin kvalitet och smak."<br/><cite>Bagare Lars Gustavsson</cite></blockquote>
+<blockquote>"Vi återgår till det ursprungliga hantverket och använder ekologiska råvaror utan onödiga tillsatser – det ger surdegsbrödet fin kvalitet och smak."&nbsp;<br/><cite>Bagare Lars Gustavsson</cite></blockquote>
 
 Höjes surdegsbröd formas lika mycket av det omgivande landskapet som av bagarens händer. Surdegen är en levande kultur som påverkas av den närmsta miljön, kvaliteten på råvarorna och bageriets kärlek för hantverket. En surdeg mår bäst där den trivs.
 
