@@ -3430,6 +3430,7 @@
 			}
 
 			#banner h2:before {
+				display: none;
 				top: 0;
 				left: 0;
 			}
