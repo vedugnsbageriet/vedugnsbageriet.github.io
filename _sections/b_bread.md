@@ -1,6 +1,6 @@
 ---
 page_title: Levande surdeg – levande landsbygd
-image: owen.jpg
+image: gustafsons.jpg
 ---
 För Höje vedugnsbageri är det viktigt att brödets hela produktionskedja bidrar till ett hållbart samhälle. Genom att handla lokalt skapar vi bärighet för både bonden, bagaren och landsbygdsborna.
 
