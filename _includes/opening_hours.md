@@ -1,1 +1,1 @@
-__Öppettider__: torsdag–lördag, 10–15
+__Öppettider__: torsdag–lördag, 9–15
