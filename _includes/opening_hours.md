@@ -1,3 +1,3 @@
-__Öppettider i butiken__: onsdag–lördag 9–16
+__Öppettider__: onsdag–fredag 9–16
 
-Det går även att köpa bröd i bageriet från kl. 9 de dagar butiken har öppet.
+Från och med den 7:e oktober tar vi semester!
