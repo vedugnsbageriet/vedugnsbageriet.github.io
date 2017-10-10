@@ -1,3 +1,3 @@
-__Öppettider__: onsdag–fredag 9–16
+__Öppettider__: Vi har semesterstängt! 
 
-Från och med den 7:e oktober tar vi semester!
+Håll utkik i veckobladet eller här på hemsidan för kommande öppettider.
