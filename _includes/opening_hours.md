@@ -1,1 +1,1 @@
-__Öppettider__: torsdag–fredag 9–16, lördag 9–15
+__Öppettider__: Vi har vinterstängt i väntan på vårsolen!
