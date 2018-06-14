@@ -3,7 +3,7 @@
 	{% for section in site.sections %}
 
 	<section class="spotlight">
-		<div class="image">{% if section.image %}<img src="{% if site.featured-image-source %}{{ section.image | prepend: site.featured-image-source | absolute_url }}{% else %}{{ "" | absolute_url }}/assets/images/{{ section.image }}{% endif %}" alt="" />{% endif %}</div>
+		<div class="image">{% if section.image %}<img src="{% if site.featured-image-source %}{{ section.image | prepend: site.featured-image-source | relative_url }}{% else %}{{ "" | relative_url }}/assets/images/{{ section.image }}{% endif %}" alt="" />{% endif %}</div>
 		<div class="content">
 			{% if section.page_title %}
 				<h2>{{ section.page_title }}</h2>
