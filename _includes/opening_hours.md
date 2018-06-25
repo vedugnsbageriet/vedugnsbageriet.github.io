@@ -4,4 +4,4 @@ I butiken finns lokala varor och i caféet fika!
 
 Det går även att köpa bröd i bageriet från kl. 9 de dagar butiken har öppet.
 
-På midsommar har vi stängt både fredag och lördag. 
+
