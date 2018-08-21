@@ -1,4 +1,4 @@
-__Öppettider__: tisdag–fredag 12–18, lördag 12–15 t.om vecka 35
+__Öppettider__: tisdag–fredag 12–18, lördag 12–15 t.om 31/8
 
 I butiken finns lokala varor och i caféet fika!
 
