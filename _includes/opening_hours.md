@@ -1,7 +1,5 @@
-__Öppettider__: tisdag–fredag 12–18, lördag 12–15 t.om 31/8
+Butiken stäng för denna säsong!
 
-I butiken finns lokala varor och i caféet fika!
+ Vecka 36+37 Bageriet öppet Torsdag-Fredag 9-16, Lördag 9-15
 
-Det går även att köpa bröd i bageriet från kl. 9 de dagar butiken har öppet.
-
-Från v.36 endast bageriet öppet Torsdag-Fredag 9-16, Lördag 9-15
+Från vecka 38 har vi semester stängt. Åter kommer i November!
