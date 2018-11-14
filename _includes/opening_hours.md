@@ -1,2 +1,4 @@
-Från vecka 38 har vi semester stängt.
-Åter kommer i November!
+Bageriet öppnar åter Fredag 23/11
+Öppettider Torsdag-Fredag 9-16
+Lördag 9-15
+Välkmna!
