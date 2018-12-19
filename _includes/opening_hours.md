@@ -2,6 +2,6 @@
 
 Lördag 9-15
 
-Extra Julöppet söndag 23/12 9-14
+Extra Julöppet söndag 23:e kl 9-14
 
 Välkomna!
