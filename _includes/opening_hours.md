@@ -1,6 +1,5 @@
-Öppettider Torsdag-Fredag 9-16
+Just nu har vi vinter STÄNGT
+och väntar på VÅRSOLEN!!
 
-Lördag 9-15  Välkomna!
-
-Från 7/1 är det vinter STÄNGT!
+Välkommen åter!
 
