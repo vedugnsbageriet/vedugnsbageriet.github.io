@@ -1,5 +1,6 @@
-Just nu har vi vinter STÄNGT
-och väntar på VÅRSOLEN!!
 
-Välkommen åter!
+Bageriet öppnar åter
+i början på April!
+
+Välkommen!
 
