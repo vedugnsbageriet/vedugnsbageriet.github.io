@@ -1,9 +1,9 @@
 
 Bageriet öppet 
 
-Torsdag-Fredag 9-16 Lördag 9-15
+Tisdag-Fredag 9-16 Lördag 9-15
 
-Lördag 8/6 STÄNGT pga resa!
+Butiken öppnar tisdag 18/6 12-17
 
 Föj oss gärna på Instagram!
 
