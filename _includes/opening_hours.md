@@ -1,9 +1,9 @@
 
-Bageriet öppet 
+Nu är BUTIKEN öppen
 
-Tisdag-Fredag 9-16 Lördag 9-15
+Tisdag-Fredag 12-17 Lördag 12-15
 
-Butiken öppnar tisdag 18/6 12-17
+Bröd försäljning i bageriet från kl.9
 
 Föj oss gärna på Instagram!
 
