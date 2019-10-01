@@ -1,6 +1,6 @@
-Just nu semester stängt men 
-öppnar åter Torsdag 3/10
-Välkommen åter!
+Öppettider: Torsdag-Fredag 9-16, Lördag 9-15
+
+Välkommen!
 
 Föj oss gärna på Instagram!
 
