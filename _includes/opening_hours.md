@@ -1,10 +1,6 @@
-Öppettider: Sista veckan vi har öppet före vinterstängningen!
+Vi har nu VINTER STÄNGT! 
 
-V.1 Torsdag-Fredag 9-16,Lördag 9-15
+Väntar på våren!
 
-Därefter vinter STÄNGT!
-
-Föj oss gärna på Instagram!
-
-Välkommen!
+Följ oss gärna på Instagram!
 
