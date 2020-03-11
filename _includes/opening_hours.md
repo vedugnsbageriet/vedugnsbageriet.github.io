@@ -1,6 +1,6 @@
-Vi har nu VINTER STÄNGT! 
+Vi öppnar åter för denna säsong 
 
-Väntar på våren!
+TORSDAGEN 2/4
 
 Följ oss gärna på Instagram!
 
