@@ -1,5 +1,5 @@
 
-Midsommar veckan öppet Tisdag-Onsdag 9-16
+Midsommar veckan öppet Onsdag-Torsdag 9-16
 
 (Bageriet öppet Torsdag-Fredag 9-16,
 Lördag 9-15)
