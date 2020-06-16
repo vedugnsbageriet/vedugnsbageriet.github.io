@@ -1,8 +1,7 @@
 
 Midsommar veckan öppet Onsdag-Torsdag 9-16
 
-(Bageriet öppet Torsdag-Fredag 9-16,
-Lördag 9-15)
+Från v.26 Öppet Tisdag-Fredag 9-17, Lördag 9-15, då även möjlighet till Fika!
 
 Varmt Välkomna!
 
