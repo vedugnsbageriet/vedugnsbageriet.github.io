@@ -1,8 +1,6 @@
-Öppet Tisdag-Fredag 9-17, då även möjlighet till Fika!
+Nu är det SEMESTER STÄNGT i tre veckor! 
 
-V.35 blir sista veckan med sommar öppet, sen tar vi några veckors semester innan vi återkommer!
-
-Varmt Välkomna!
+Välkommen åter!
 
 Följ oss gärna på Instagram!
 
