@@ -1,4 +1,4 @@
-Nu är det SEMESTER STÄNGT i tre veckor! 
+SEMESTER STÄNGT, öppnar igen Torsdag 24/9
 
 Välkommen åter!
 
