@@ -1,4 +1,6 @@
-Öppet Torsdag-Fredag 9-16, Lördag 9-15
+Vecka 44, Allhelgona, Öppet Torsdag-Fredag 9-16, Lördag 9-15
+
+Lördag 7/10 STÄNGT! pga resa.
 
 Välkommen!
 
