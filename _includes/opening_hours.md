@@ -6,7 +6,7 @@ V.53 Tisdag-Onsdag 9-16
 
 Därefter Vinter STÄNGT!
 
-Välkommen!
+GOD JUL o GOTT NYTT ÅR! Välkommen!
 
 Följ oss gärna på Instagram!
 
