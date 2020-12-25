@@ -1,7 +1,5 @@
 Öppet
 
-V.52 Måndag-Onsdag 9-16
-
 V.53 Tisdag-Onsdag 9-16
 
 Därefter Vinter STÄNGT!
