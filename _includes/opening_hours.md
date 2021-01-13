@@ -1,10 +1,6 @@
-Öppet
+ Vinter STÄNGT!
 
-V.53 Tisdag-Onsdag 9-16
-
-Därefter Vinter STÄNGT!
-
-GOD JUL o GOTT NYTT ÅR!
+God fortsättning!
 
 Följ oss gärna på Instagram!
 
