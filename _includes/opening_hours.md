@@ -1,6 +1,6 @@
- Vinter STÄNGT!
+Åter ÖPPET från ONSDAG 31/3
 
-God fortsättning!
+VÄLKOMMEN !
 
 Följ oss gärna på Instagram!
 
