@@ -1,6 +1,6 @@
- V.25 Midsommar veckan, semester STÄNGT!
+Öppet Tisdag-Fredag 9-16, Lördag 9-15
 
-Från v.26, 29/6 öppet Tisdag-Fredag 9-16, Lördag 9-15
+Ta gärna en fika under äppelträden!
 
 VÄLKOMMEN !
 
