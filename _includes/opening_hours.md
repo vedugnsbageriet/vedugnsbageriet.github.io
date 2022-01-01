@@ -1,10 +1,6 @@
-ÖPPET Torsdag-Fredag 9-16, Lördag 9-15
+Vi har nu VINTER STÄNGT!
 
-ÖPPET JUL: Tisdag-Torsdag 9-16
-
-ÖPPET NYÅR: Onsdag-Torsdag 9-16, därefter VINTER STÄNGT!
-
-Välkommen!
+Välkommen åter!
 
 Följ oss gärna på Instagram!
 
