@@ -1,6 +1,6 @@
-Vi har nu VINTER STÄNGT!
+Öppet från 14/4 Torsdag-Fredag 9-16, Lördag 9-15
 
-Välkommen åter!
+Välkommen!
 
 Följ oss gärna på Instagram!
 
