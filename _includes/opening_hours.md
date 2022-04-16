@@ -1,4 +1,4 @@
-ÖppetTorsdag-Fredag 9-16, Lördag 9-15
+Öppet Torsdag-Fredag 9-16, Lördag 9-15
 
 Välkommen!
 
