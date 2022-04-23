@@ -1,6 +1,6 @@
-TYVÄRR!! Denna vecka 16 STÄNGT pga sjukdom!
+ÖPPET: Torsdag-Fredag 9-16, Lördag 9-15
 
-Välkommen åter nästa vecka!!
+Välkommen!
 
 Följ oss gärna på Instagram!
 
