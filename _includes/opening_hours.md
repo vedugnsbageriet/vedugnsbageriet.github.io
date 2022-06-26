@@ -1,7 +1,4 @@
-Veck.25 Midsommar STÄNGT!
-
-
-Veck.26 Sommartider Tisdag- Fredag 9-16, Lördag 9-15
+Sommartider: Tisdag- Fredag 9-16, Lördag 9-15
 Även möjlighet till Fika, i trädgården eller inne!
 
 Välkommen!
