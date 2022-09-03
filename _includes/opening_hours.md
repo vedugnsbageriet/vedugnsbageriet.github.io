@@ -1,5 +1,4 @@
-Sommartider: Tisdag- Fredag 9-16, Lördag 9-15
-Även möjlighet till Fika, i trädgården eller inne!
+ÖPPET: Torsdag- Fredag 9-16, Lördag 9- 15
 
 Välkommen!
 
