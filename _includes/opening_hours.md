@@ -1,6 +1,6 @@
-Bageriet öppnar åter Torsdag 24/11
+Öppet Torsdag-Fredag 9-16, Lördag9-15
 
-Välkommen åter!
+Välkommen!
 
 Följ oss gärna på Instagram!
 
