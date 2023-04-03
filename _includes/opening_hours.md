@@ -1,4 +1,4 @@
-Öppnar åter 6/4 Torsdag-Fredag 9-16, Lördag 9-15
+Öppnat  Torsdag-Fredag 9-16, Lördag 9-15
 
 Välkommen!
 
