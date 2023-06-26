@@ -1,12 +1,9 @@
-Öppnat  Torsdag-Fredag 9-16, Lördag 9-15
+ÖPPET: Tisdag- Fredag 9- 16, Lördag 9-15
 
-Nästa vecka, midsommar veckan SEMESTER STÄNGT!
+Ta gärna en fika under äppelträden eller inne (vid regn)
 
-Från veck.26 öppet Tisdag- Lördag
-
-Välkommen!
+Varmt Välkommen!
 
 Följ oss gärna på Instagram!
 
-Titta gärna in på www.varmlandsmat.se
 
