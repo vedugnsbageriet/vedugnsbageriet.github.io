@@ -1,6 +1,4 @@
-ÖPPET: Tisdag- Fredag 9- 16, Lördag 9-15
-
-Ta gärna en fika under äppelträden eller inne (vid regn)
+ÖPPET:Torsdag- Fredag 9- 16, Lördag 9-15
 
 Varmt Välkommen!
 
