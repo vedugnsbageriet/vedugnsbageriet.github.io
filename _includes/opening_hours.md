@@ -1,6 +1,6 @@
-Från 2/10 SEMESTER STÄNGT!
-
-Välkommen åter!
+Öppnar åter 30/11 
+Tprsdag- Lördag
+Välkommen!
 
 Följ oss gärna på Instagram!
 
