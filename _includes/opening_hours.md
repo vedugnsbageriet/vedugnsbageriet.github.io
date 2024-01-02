@@ -1,7 +1,6 @@
-Öppnet Torsdag-Fredag 9-16, Lördag 9-15
-dessa tider före Jul o Nyår!
+Från 1/1-24 VINTERSTÄNGT!
 
-Välkommen!
+Välkommen åter!
 
 Följ oss gärna på Instagram!
 
