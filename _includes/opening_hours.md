@@ -1,5 +1,6 @@
-Öppnar åter PÅSK, Onsdag 27/3 9-16
+Öppet v.14
 Torsdag-Fredag 9-16, Lördag 9-15
+Därefter stängt någon vecka!
 
 Välkommen!
 
