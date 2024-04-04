@@ -1,6 +1,6 @@
 Öppet v.14
 Torsdag-Fredag 9-16, Lördag 9-15
-Därefter stängt någon vecka!
+Från v.15 stängt fram till 9/5
 
 Välkommen!
 
