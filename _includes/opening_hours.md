@@ -1,4 +1,6 @@
-Från 9/5 Öppet Tordag-Fredag 9-16, Lördag 9-15
+Midsommar veckan STÄNGT!
+
+Från veck. 26 öppet tisdag-lördag
 
 Välkommen!
 
