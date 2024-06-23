@@ -1,8 +1,8 @@
-Midsommar veckan STÄNGT!
+Sommar öppet: Tisdag-Fredag 9-16, Lördag 9-!5
 
-Från veck. 26 öppet tisdag-lördag
+Du kan ta en Fika i trädgården eller inne!
 
-Välkommen!
+Känn dig Varmt Välkommen!
 
 Följ oss gärna på Instagram!
 
