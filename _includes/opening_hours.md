@@ -1,6 +1,6 @@
-Från 30/9 Semester STÄNGT! 
+Öppet Tordag-Fredeag 9-16, Lördag 9-15
 
-Öppnar åter 14/11 Välkommen åter!
+Varmt Välkommen!
 
 Följ oss gärna på Instagram!
 
