@@ -1,8 +1,8 @@
-V.51 Fredag 9-16, Lördag 9-15, Söndag 9-15
+VINTERSTÄNGT!
 
-V.52 Måndag 9-16, därefter VINTERSTÄNGT!
+TACK för ett bra 2024
 
-Varmt Välkommen!
+Välkommen åter!
 
 Följ oss gärna på Instagram!
 
