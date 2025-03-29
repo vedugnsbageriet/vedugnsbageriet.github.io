@@ -1,8 +1,6 @@
-VINTERSTÄNGT!
+Bageriet öppnar åter onsdag 16/4
 
-TACK för ett bra 2024
-
-Välkommen åter!
+Välkommen!
 
 Följ oss gärna på Instagram!
 
