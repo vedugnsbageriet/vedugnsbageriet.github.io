@@ -1,8 +1,6 @@
-Öppettider:Torsdag- Fredag 9-16, Lördag 9-15
+Öppettider:Tisdag- Fredag 9-16, Lördag 9-15
 
-Veck.25 Midsommar veckan, Semester STÄNGT
-
-Från veck.26 Öppet Tisdag- Lördag 9-16(15)
+Ta gärna en Fika i trädgården eller inne!
 
 Välkommen!
 
