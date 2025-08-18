@@ -1,6 +1,6 @@
-Öppettider:Tisdag- Fredag 9-16, Lördag 9-15
+Öppettider: Torsdag- Fredag 9-16, Lördag 9-15
 
-Ta gärna en Fika i trädgården eller inne!
+Ta gärna en Fika i trädgården eller inne, till sista augusti! 
 
 Välkommen!
 
