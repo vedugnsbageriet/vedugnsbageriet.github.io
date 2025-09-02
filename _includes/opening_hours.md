@@ -1,6 +1,6 @@
 Öppettider: Torsdag- Fredag 9-16, Lördag 9-15
 
-Ta gärna en Fika i trädgården eller inne, till sista augusti! 
+I september,sista helgen är det Smaka På Värmland lördag-söndag! 
 
 Välkommen!
 
