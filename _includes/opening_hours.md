@@ -1,6 +1,8 @@
-Öppettider: Torsdag- Fredag 9-16, Lördag 9-15
+Öppettider: Torsdag- Söndag 9-16
 
-I september,sista helgen är det Smaka På Värmland lördag-söndag! 
+Sista helgen i september,är det Smaka På Värmland lördag-söndag! 
+
+Från v.40, 29/9 har vi Semester STÄNGT!
 
 Välkommen!
 
