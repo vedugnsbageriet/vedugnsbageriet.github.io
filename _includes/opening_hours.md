@@ -1,4 +1,4 @@
-Från v.40, 29/9 har vi Semester STÄNGT!
+Bageriet öppnar åter Tisdagen 16/12 och fram till Jul!
 
 Välkommen!
 
