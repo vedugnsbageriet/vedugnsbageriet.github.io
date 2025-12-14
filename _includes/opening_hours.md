@@ -1,6 +1,8 @@
-Bageriet öppnar åter Tisdagen 16/12 och fram till Jul!
+Öppet: Tisdag-Fredag 9-16, Lördag 9-15
 
-Välkommen!
+Måndag-Tisdag 9-16
+
+Välkommen! God Jul!
 
 Följ oss gärna på Instagram!
 
