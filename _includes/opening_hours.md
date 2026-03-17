@@ -1,6 +1,6 @@
-Från 24/12-25, har vi Vinter STÄNGT!
+Bageriet öppnar igen Torsdag 30/4
 
-Välkommen Åter!
+Välkommen!
 
 Följ oss gärna på Instagram!
 
