@@ -1,4 +1,4 @@
-Bageriet öppnar igen Torsdag 30/4
+Bageriet öppet Torsdag- Fredag 9-16, Lördag 9-15
 
 Välkommen!
 
