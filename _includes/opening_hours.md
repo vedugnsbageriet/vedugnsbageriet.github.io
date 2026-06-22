@@ -1,4 +1,7 @@
-Midsommar veckan har vi semester STÄNGT!
+Tyvärr får vi meddela att pga problem med händerna,
+kommer bageriet vara tillfälligt STÄNGT veckorna framöver.
+
+Ber om förståelse för detta!
 
 Välkommen åter!
 
