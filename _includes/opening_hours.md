@@ -1,9 +1,10 @@
-Tyvärr får vi meddela att pga problem med händerna,
-kommer bageriet vara tillfälligt STÄNGT veckorna framöver.
+Glada nyheter!!
 
-Ber om förståelse för detta!
+Bageriet öppnar igen Torsdag 29/10 kl 9-16
 
-Välkommen åter!
+Fredag 9-16, Lördag 9-15, fram till jul!
+
+Välkommen!
 
 Följ oss gärna på Instagram!
 
